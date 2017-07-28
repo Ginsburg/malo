@@ -7,7 +7,7 @@ The **best project** on earth!
 Doesn't work, it chills.
 
 - Who uses Malo?  
-Everyone on earth except thos who don't.
+Everyone on earth except those who don't.
 
 - What is Malo's goal?
 To make everyone awesome.
